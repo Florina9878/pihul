@@ -3,7 +3,8 @@
 **Introduction** 
 
 Albemarle Corporation, a global leader in specialty chemicals, is continuously refining its strategies and introducing innovations to strengthen its position in the **[Catalyst Market](https://www.nextmsc.com/report/catalyst-market)**. The company has made significant strides in developing advanced catalyst solutions to meet the evolving needs of industries such as petrochemicals, refining, and specialty chemicals.
-Download Free Sample
+
+**[Download Free Sample](https://www.nextmsc.com/catalyst-market/request-sample)**
 
 **Launch of Ketjen Corporation**
 
